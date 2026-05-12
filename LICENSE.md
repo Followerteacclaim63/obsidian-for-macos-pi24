@@ -1,4 +1,4 @@
-#  
+#  Obsidian for macOS custom Workflow - custom shortcuts and version history offers the most advanced Obsidian for macOS workflow, with custom shortcuts and version history. Ideal
 
 
 
